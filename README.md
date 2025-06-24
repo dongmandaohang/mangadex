@@ -1,7 +1,8 @@
 <h2>MangaDex中文网站 - 免费漫画看最新网址|网页下载</h2>
 <p>MangaDex是一个全球知名的在线漫画阅读平台，以其丰富的漫画资源、多语言支持和社区互动功能而闻名。它汇集了来自世界各地的漫画爱好者和翻译者，为用户提供非官方的漫画翻译版本，涵盖多种流派和类型，包括动作、冒险、浪漫、剧情等。MangaDex的界面简洁直观，用户可以轻松浏览和搜索漫画，并通过社区功能与其他用户交流心得。</p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/15845.html" target="_blank"><strong>MangaDex最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
